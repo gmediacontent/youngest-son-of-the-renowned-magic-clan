@@ -1,1 +1,2 @@
-# youngest-son-of-the-renowned-magic-clan
+# Youngest Son of the Renowned Magic Clan
+Des bourrelets, une voix d’enfant et un goût prononcé pour la violence ? Pas d’erreur, Seongmin s’est réveillé dans le corps de Rasen Mayton. Ce garçon de 9 ans est le dernier-né d’une famille de mages destinée à affronter le héros du roman écrit par Seongmin. Problème, le capricieux Rasen est voué à mourir à 17 ans ! Dans le but de survivre, l’enfant décide alors de prendre part à la guerre de succession qui déchire sa famille. Pour cela, il devra garder ses amis proches… et ses ennemies encore plus !
